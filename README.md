@@ -5,9 +5,9 @@ Quoted from The Refugees by Viet Thanh Nguyen
 
 Fame would strike someone, usually the kind that healthy-minded people would not wish upon themselves, such as being kidnapped and kept prisoner for years, suffering humiliation in a sex scandal, or surviving something typically fatal.
 ##
-Ever since my father died a few years ago, my mother and I lived together politely. We shared a passion for words, but I preferred the  silence of writing while she loved to talk. she constantly fed me gossip and stories, the only kind I enjoyed concerning my father back when he was a man I did not know, young and happy. Then came stories of terror like the one about the reporter, the moral being that life, like the police, enjoys beating people now and again. Finally there was her favorite kind, the gost s  
+Ever since my father died a few years ago, my mother and I lived together politely. We shared a passion for words, but I preferred the  silence of writing while she loved to talk. she constantly fed me gossip and stories, the only kind I enjoyed concerning my father back when he was a man I did not know, young and happy. Then came stories of terror like the one about the reporter, the moral being that life, like the police, enjoys beating people now and again. Finally there was her favorite kind, the ghost story, of which she knew many, some firsthand.   
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjE1NTU1MDQzXX0=
+eyJoaXN0b3J5IjpbLTEyMjQ0NjYwOThdfQ==
 -->
